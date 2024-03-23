@@ -3,9 +3,9 @@
 
 Last Update: 14 March 2024
 
-### [Watch Arthur the King Full Movie onl𝚒ne](https://t.co/i8GKDbtgEM)
+### [Watch Arthur the King FullMovie onl𝚒ne](https://t.co/i8GKDbtgEM)
 
-### [Watch arthur the King 2024 Full Movie Downloading](https://t.co/i8GKDbtgEM)
+### [Watch arthur the King 2024 FullMovie](https://t.co/i8GKDbtgEM)
 
 ### [![Foo](https://i0.wp.com/image.tmdb.org/t/p/w780/pa7jM1TIoa2DZfkE1zoqo4CHVG8.jpg)](https://t.co/i8GKDbtgEM)
 
